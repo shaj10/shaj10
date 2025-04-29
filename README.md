@@ -2,3 +2,4 @@
 - 👀 I’m interested in world literature
 - 🌱 I’m currently learning ... Indian philosophy
 - 📫 Reach me via <a href="https://www.trinity.edu/directory/smathew">my faculty page</a>
+- Check out <a href="https://global.oup.com/academic/product/the-dialectic-of-cosmopolitan-time-9780197819043?cc=us&lang=en&">my book</a>
